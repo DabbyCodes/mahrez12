@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mahrez12
+- 👋 Hi, I’m @ogbonna Daniel
 - 👀 I’m eager,determined
 -hardwork keeps me going
 - 🌱 I’m currently learning 
